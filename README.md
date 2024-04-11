@@ -1,1 +1,9 @@
-# BIT-Group-1-W.T-Group-Assignement-of-11th-April-2024-Sub-Group-1
+1. Etienne NIYOMUKIZA 222003307
+2. RUKUNDO Vivens 222009780
+3. HAGENIMANA Diane 222004455
+4. Ndatimana Gentille 222007958
+5. Niyonizeye lydie  222016078
+6. DUHABWANAYO Fidéle 222003029
+7. Urukundo Adeline 222005444
+8. MUNYAKAZI Gad 222004929
+9. Habimana Ngumire 222001797
